@@ -8,3 +8,4 @@
 Ishulakha/Ishulakha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Download termux your phone it is to much best in hacking 
